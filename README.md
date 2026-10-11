@@ -2,3 +2,6 @@
 
 
 I live in Virignia and always have.
+I like soccer 
+Coding is interesting.
+
